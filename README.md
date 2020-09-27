@@ -2,5 +2,5 @@
 3x3 Caro created by Noob Devs
 
 Credit:
-Cao Hồng Chương \n
+Cao Hồng Chương
 Nguyễn Hoàng Hải
